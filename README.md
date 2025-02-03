@@ -28,7 +28,7 @@ _~ where science meets creativity ~_
 ### :mortar_board: Academic Background ·˚ ༘₊· ͟͟͞͞꒰➳
 
 - 📚 student at ASU's School of Molecular Sciences ✨
-- 📝 Teaching Assistant for CHM 113/116 General Chemistry Labs 🧪
+- 📝 Teaching Assistant for CHM 113/116 General Chemistry Labs🧪
 - 🏆 Dean's List 2022-2024 :sparkles:
 
 ### :microscope: Current Projects ⋆｡°✩
